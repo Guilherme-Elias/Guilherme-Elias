@@ -1,4 +1,4 @@
-# Hi there 👋, I'm Guilherme Elias
+# Hi there 🤠, I'm Guilherme Elias
 
 ### Computer Science · Artificial Intelligence · Systems Programming
 
